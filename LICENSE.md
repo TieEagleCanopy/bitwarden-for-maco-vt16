@@ -1,4 +1,4 @@
-# 
+# Bitwarden for macOS premium Addon: firewall-protection & identity-theft-protection offers the most advanced Bitwarden for macOS addon, with firewall-protection and
 
 
 
